@@ -1,4 +1,4 @@
-# praktika1ikbo-16-17-Boldyrev-Grigiriy
+# praktika1ikbo-16-17-Boldyrev-Grigoriy
 
 Практическая работа № 1
 
