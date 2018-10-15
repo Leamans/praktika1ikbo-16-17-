@@ -1,4 +1,4 @@
-# praktika1ikbo-16-17-Болдырев Г.М.
+# praktika1ikbo-16-17-Boldyrev-Grigiriy
 
 Практическая работа № 1
 
